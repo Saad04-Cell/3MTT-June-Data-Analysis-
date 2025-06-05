@@ -1,2 +1,2 @@
 # 3MTT-June-Data-Analysis-
-3MTT knowledge showcase June edition 
+3MTT knowledge showcase June 2025
